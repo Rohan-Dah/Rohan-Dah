@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rohan.rd07@gmail.com**
 
-- ⚡ You know what,  **I think therefore I am!**
+- ⚡ **I think therefore I am!**, you see!
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
